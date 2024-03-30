@@ -1,16 +1,16 @@
-![IAM A STUDENT OF LEARNING  HACKING AND WEB DEVELOPMENT. ](https://pbs.twimg.com/media/GJ5VaUebEAAk8eZ?format=jpg&name=4096x4096)
+![I AM JUST A SPAMMER BUT I AM TRYING HARD TO LEARN SOMETHING BETTER](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse2.mm.bing.net%2Fth%3Fid%3DOIP.hQR3_tCL_phZgIK80wnOcAHaFj%26pid%3DApi&f=1&ipt=d6b23d60c2f03df26513623e76172bd50e96849b41a9e62177f02b52e4328586&ipo)
+
 
 ### Hi there 👋, MY NAME IS HEX WAVE
-#### IAM A STUDENT OF LEARNING  HACKING AND WEB DEVELOPMENT. 
-
+#### I AM JUST A SPAMMER BUT I AM TRYING HARD TO LEARN SOMETHING BETTER
 
 I AM A SIMPLE MAN AS ALWAYS
 
-Skills: REACT / SPAMMING /
+Skills: SPAMMING/RECOVERY/TRYING HARD
 
 - 🔭 I’m currently working on BANGLADESH ISLAMIC CYBER PROTECTOR TEAM  
-- 🌱 I’m currently learning HACKING/WEB DEVELOPMENT  
-- 💬 Ask me about SPAMMING/HOW TO FAIL  
+- 🌱 I’m currently learning PYTHON/JAVA/WEB DEVELOPMENT /HACKING 
+- 💬 Ask me about SPAMMING /RECOVERY 
 - 📫 How to reach me: hexwave.18@gmail.com 
 - ⚡ Fun fact: Noob 
 
