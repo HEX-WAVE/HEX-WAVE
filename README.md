@@ -1,12 +1,10 @@
-![I AM JUST A SPAMMER BUT I AM TRYING HARD TO LEARN SOMETHING BETTER](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse2.mm.bing.net%2Fth%3Fid%3DOIP.hQR3_tCL_phZgIK80wnOcAHaFj%26pid%3DApi&f=1&ipt=d6b23d60c2f03df26513623e76172bd50e96849b41a9e62177f02b52e4328586&ipo)
-
-
 ### Hi there 👋, MY NAME IS HEX WAVE
 #### I AM JUST A SPAMMER BUT I AM TRYING HARD TO LEARN SOMETHING BETTER
+![I AM JUST A SPAMMER BUT I AM TRYING HARD TO LEARN SOMETHING BETTER](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmiro.medium.com%2Fmax%2F1400%2F1*gReLR6hZjwyBxHmfLN1AVw.gif&f=1&nofb=1&ipt=8da3c9664ca53b6e01f84efd8e35e539a243fbb6975c7e1d8f15ae4dd2be3594&ipo=images)
 
 I AM A SIMPLE MAN AS ALWAYS
 
-Skills: SPAMMING/RECOVERY/TRYING HARD
+![Skills: SPAMMING/RECOVERY/TRYING HARD](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmedia.tenor.com%2FCzdMW7wnLn8AAAAC%2Fcoding.gif&f=1&nofb=1&ipt=558f3ad1ab6f9a65d5cd6b659aba2c13e27b60a57ecaf75b0ecdfb833f6ed28f&ipo=images)
 
 - 🔭 I’m currently working on BANGLADESH ISLAMIC CYBER PROTECTOR TEAM  
 - 🌱 I’m currently learning PYTHON/JAVA/WEB DEVELOPMENT /HACKING 
