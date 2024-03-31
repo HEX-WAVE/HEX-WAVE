@@ -1,4 +1,4 @@
-### Hi there 👋, MY NAME IS HEX WAVE
+### Hi there 👋, THIS IS HEX WAVE
 #### I AM JUST A SPAMMER BUT I AM TRYING HARD TO LEARN SOMETHING BETTER
 ![I AM JUST A SPAMMER BUT I AM TRYING HARD TO LEARN SOMETHING BETTER](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmiro.medium.com%2Fmax%2F1400%2F1*gReLR6hZjwyBxHmfLN1AVw.gif&f=1&nofb=1&ipt=8da3c9664ca53b6e01f84efd8e35e539a243fbb6975c7e1d8f15ae4dd2be3594&ipo=images)
 
@@ -36,7 +36,8 @@ func main() {
 - 🌱 I’m currently learning PYTHON/JAVA/WEB DEVELOPMENT /HACKING 
 - 💬 Ask me about SPAMMING /RECOVERY 
 - 📫 How to reach me: hexwave.18@gmail.com 
-- ⚡ Fun fact: Noob 
+- ⚡ Fun fact: Noob
+- 💣I F_CK YOUR SYSTEM
 
 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/HEX-WAVE)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/facebook.svg' alt='facebook' height='40'>](https://www.facebook.com/HexWave.18)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/twitter.svg' alt='twitter' height='40'>](https://twitter.com/Soaib_18)  
