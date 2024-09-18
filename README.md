@@ -23,7 +23,7 @@ func main() {
   me.name     = "HEX WAVE"
   me.username = "HEX-WAVE"
   me.age      = "15"
-  me.job      = "Spammer|Learning Python & JS & Web Development"
+  me.job      = "Nothing Specific"
   me.hobbies  = []string{"code", "movies", "music","article writing"," gaming","poetry"}
   
   fmt.Println(me)
