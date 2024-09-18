@@ -32,9 +32,9 @@ func main() {
 
 ![Skills: SPAMMING/RECOVERY/TRYING HARD](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmedia.tenor.com%2FCzdMW7wnLn8AAAAC%2Fcoding.gif&f=1&nofb=1&ipt=558f3ad1ab6f9a65d5cd6b659aba2c13e27b60a57ecaf75b0ecdfb833f6ed28f&ipo=images)
 
-- 🔭 I’m currently working on BANGLADESH ISLAMIC CYBER PROTECTOR TEAM  
-- 🌱 I’m currently learning PYTHON/JAVA/WEB DEVELOPMENT /HACKING 
-- 💬 Ask me about SPAMMING /RECOVERY 
+- 🔭 I’m currently working on Team Bloody
+- 🌱 I’m currently learning Everything 💀 
+- 💬 Ask me about Nothing 🤡
 - 📫 How to reach me: hexwave.18@gmail.com 
 - ⚡ Fun fact: Noob
 - 💣I F_CK YOUR SYSTEM
